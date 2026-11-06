@@ -292,3 +292,71 @@ Recreate SKPs Bot SA <skia-recreate-skps@skia-swarming-bots.iam.gserviceaccount.
 Skia Autorollers SA <skia-autoroll@skia-public.iam.gserviceaccount.com>
 Louhi SA <louhi-prod-1-6316342352543744@louhi-prod-1.iam.gserviceaccount.com>
 Powered by Gitiles| Privacy| Terms
+Aqui não importa tanto Quem fez?, e sim Por que fez?
+No fim, se descobrirmos Por quê? e acrescentarmos Como?,
+também desvendaremos Quem?, uma vez que Por quê? + Como? =
+Quem.
+O objetivo não é ser amigo. O objetivo não é ser inimigo. O objetivo
+é descobrir a verdade.
+É uma partida de xadrez verbal e mental sem peças, uma sessão de
+treinamento sem contato corporal, uma prova de resistência na qual
+cada lado busca e explora as fraquezas e inseguranças do oponente.
+Sentamos um de frente para o outro diante de uma pequena mesa
+em uma sala com luz baixa cujas paredes de tijolos são pintadas de
+um cinza-azulado pálido. A única janela fica na porta de ferro
+trancada, pequena e reforçada com uma tela de metal. Um guarda
+uniformizado observa do outro lado, certificando-se de que tudo
+esteja em ordem.
+Em uma prisão de segurança máxima, essa é a premissa mais
+importante.
+Nós já estamos nessa conversa há duas horas quando, enfim, o
+momento chega.
+“Quero saber, nas suas palavras, como tudo aconteceu há 25 anos.
+Como você veio parar aqui? A garota, Joan, você a conhecia?”
+“Já tinha visto ela pela vizinhança”, responde ele. Sua postura era
+calma, e o tom de voz, tranquilo.
+“Vamos voltar ao momento em que ela bateu na sua porta. Diga-
+me o que aconteceu, passo a passo, a partir daí.” É quase como uma hipnose. A sala fica em silêncio, e o vejo se
+transformar na minha frente. Até sua aparência física parece mudar
+diante dos meus olhos. O olhar fica desfocado, atravessa-me e paira
+na parede vazia. Ele está voltando para outro tempo e lugar; para a
+única história que nunca saiu de sua cabeça.
+A sala está muito fria e, apesar de eu estar de paletó, faço um
+esforço para não tremer. Porém, conforme reconta a história, o
+homem começa a transpirar. Sua respiração fica cada vez mais forte e
+audível. Logo a camisa dele está ensopada de suor e, por baixo dela, os
+músculos do peito estremecem.
+Ele relata tudo dessa maneira, sem olhar para mim, como se
+estivesse falando sozinho. Ele está em uma espécie de transe, naquela
+hora e naquele local, pensando agora no que pensava no momento.
+Por um instante, ele se vira para me encarar. Olha no fundo dos
+meus olhos e diz:
+“John, quando ouvi a batida na porta, olhei pelo vidro e vi quem
+estava ali, eu sabia que ia matá-la.” INTRODUÇÃO APRENDENDO COM ESPECIALISTAS
+Este é um livro sobre a forma que os predadores violentos pensam —
+o alicerce dos meus 25 anos de trabalho como agente especial do FBI,
+pesquisador de perfis comportamentais e analista investigativo
+criminal, além do trabalho que tenho feito desde que me aposentei.
+No entanto, também é um livro sobre conversas que tive. Afinal,
+foi através delas que tudo começou. Ao conversar, aprendi a usar o
+pensamento de um serial killer para ajudar oficiais da polícia a
+capturá-lo e levá-lo à justiça. Para mim, esse foi o início do trabalho
+de análise de perfis comportamentais.
+Iniciei o processo de entrevistar criminosos violentos
+encarcerados pelo que eu considerava uma necessidade pessoal e
+institucional, mas, de muitas maneiras, tudo começou com um desejo
+de entender as motivações ocultas desses criminosos. Como a
+maioria dos agentes especiais do FBI, fui designado para trabalhar
+nas ruas. Meu primeiro cargo foi em Detroit. Desde o início, tinha
+interesse em saber por que as pessoas cometiam crimes — não
+apenas no fato de os cometerem, mas por que praticavam tipos
+específicos.
+Detroit era uma cidade violenta, e, enquanto estive lá, cobríamos
+até cinco roubos de banco por dia. Roubar um banco protegido pela
+Federal Deposit Insurance Corporation é um crime federal, então a
+jurisdição recai sobre o FBI, e muitos agentes eram designados para
+investigar esses casos, além de trabalharem em suas outras funções.
+No momento em que capturávamos um suspeito e líamos os seus
+direitos, em geral, no banco de trás de um carro do FBI ou da polícia
+local, eu o enchia de perguntas. Por que roubar um banco onde a
+segurança é acirrada e tudo é filmado, em vez de uma loja com alto
